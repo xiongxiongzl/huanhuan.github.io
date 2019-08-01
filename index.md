@@ -1,40 +1,142 @@
 # 欢迎走进欢欢看世界
       为您带来不一样的精彩
-
-## 新疆文化史
-
-   
-   新疆，汉称西域西域，意思是中国西部的疆域，最原始的称呼是柱州，这一名称自汉代出现于我国史籍，一直沿用到清朝统一新疆，之后改称新疆。新疆大部自西汉便属中国，今天新疆大部分从中国西汉一直到西晋都属于中国版图，唐朝再次纳入中国版图，元朝时为蒙古族察合台汗国地，清朝时再次纳入中国版图。最后一次被侵占是在明清换代时期。1757年，清乾隆帝再次收复故土，把这片土地命名为"新疆"，取"故土新归"之意。
-中文名 新疆文化史 外文名 Xinjiang cultural history
-
-   新疆具有悠久的历史和灿烂的文化,新疆各族人民创造的新疆民族文化是中华民族文 化 重要组成部分,新疆各族人民为中华民族文化宝库作出了历史性的宝贵贡献。鉴于新疆的自 然、历史、社会等诸种因素,新疆文化又具有自己独特的历史传统、表现特征和发展面貌。 
-　
- 
- 新疆自古以来就是多民族聚居地区,同时又是多宗教信仰地区,古丝绸之路的开通等使新 疆文化呈现出多元化和开放、融合等特点。在漫长的历史发展过程中,新疆文化深受祖国内 地文化的影响,形成丰富的内涵,同时,新疆文化又对祖国内地文化产生积极影响。新疆古代 、近代和现代文化内容丰富多彩,民族特色浓郁,科学、艺术价值珍贵。　 
-　　
-  原始社会时期。成书于战国时期的《山海经》和《穆天子传》中,有关周穆王西巡昆仑 会见西王母的故事。新疆境内考古发掘出土的大量陶器,其中不少彩陶的图案纹饰与中原内 地同期出土的陶 器图案纹饰相同或相近似。距今3000年前,新疆出土的彩陶三角形纹、涡纹 、弦纹的绘制和诸如陶豆一类器形， 说明甘肃和内地彩陶艺术已影响到新疆彩陶文化的发展。　 
-![](https://ss1.bdstatic.com/70cFvXSh_Q1YnxGkpoWK1HF6hhy/it/u=2876363815,1334160126&fm=15&gp=0.jpg)
-
-　　汉唐时期。两汉统一西域,丝绸之路的开通,造成东西方文化在这里大汇聚、大交 融， 促成西域文化空前繁荣。天山北部的草原游牧文化、天山南部农耕文化迅速发展。随着军事 屯田和汉族移 民,中原的先进文化和耕作技术传入西域,形成了以汉文化为主的屯垦文化。 同时,中原文化、印度文化、两河流 域文化、波斯文化、希腊文化、罗马文化等在这里荟萃 、交融出现了多种语言文字的使用,如汉文、吐火罗文、 于阗文、粟特文等。　
-  
-　　1995年10月至11月,民丰尼雅遗址3号棺出土色彩斑斓的锦被上织着"王侯合昏,千 秋万 岁宜子孙"的小篆汉字和纹样;8号棺木出土的一只色彩艳丽的锦袋上有篆书文字:"五星出东 方利中国"。揭 示了汉、晋时期尼雅与中原王朝密切的政治和经济关系。唐代诗人岑参、骆 宾王、洪亮吉等撰写的雄浑的大漠 、壮丽的山川、奇特的气象、悲壮的征战奇观等奇妙绝 伦的诗篇,脍炙人口,久传不衰,称为中国文学史上的"边 塞诗"。
-  
-  ![](http://pics6.baidu.com/feed/bd3eb13533fa828b000c41ea16957731970a5a18.jpeg?token=a3e6d625976693cae4230bea6e9a170d&s=A9324F945E31499642316951030080EA)
-  
-  
-　　随着佛教由印度沿丝路传入西域乃至我国内地。佛教文化成为当时西域的最重要 的内 容。龟兹佛学家、佛经翻译家鸠摩罗什来到内地讲译佛经、著述佛学经文。东晋高僧经西域 赴印度取经,著 有《佛国记》。回鹘文《弥勒会见记》是我国最早的诞生在西域的戏剧文学 剧本。唐代高僧玄奘去西天取经,写 《大唐西域记》。吐鲁番地区考古发掘出土的大量汉文文书、契约等,表明唐代前后汉文在高昌地区文字使用方 面的主体地位。龟兹石窟和高昌石窟中的佛教内容的壁画,显示出中外绘画技艺萎萃交融的特点。唐代于阗尉迟 跋、尉迟已僧父子动用凹凸技法,表现佛教内容和西域人物花鸟,震惊长安。龟兹乐、高昌乐、疏勒乐等在隋唐 时期乐曲中占有重要地位。除乐曲外,琵琶、箜篌、鼓、角等西域传统乐器也传入内地,成了唐代以及后世音乐 演奏中的主要乐器。西域舞蹈如:胡腾舞、胡旋舞、拓枝舞等传入 中原宫廷乃至民间。　 
-　
- ![](http://i2.chinanews.com/simg/2019/190528/100028700.jpg)
- 
-  宋元明清时期。喀刺汗王朝(9世纪末一1211)时期,随着伊斯兰教传入西域并逐渐 扩展,伊斯兰文化对西域文化的影响愈来愈大。著名维吾尔族学者玉系甫·哈斯·哈吉甫编著了 反映当时社会及 精神文化生活的诗体百科全书《福乐智慧》,著名维吾尔族学者马赫穆德·喀什噶里著有突厥语工具书《突厥语 大词典。维吾尔族诗人玉素甫阿吉著有爱情叙事长诗 艾里甫与赛乃姆》。蒙元时期有著名维吾尔族文学家马 祖常;著名维吾尔散曲作家贯云石;著名维吾尔族农学家鲁明善著有《农桑衣食撮要》。明代旅行家陈诚著有《 西域行程记》、《西域番国志》等。柯尔克孜族民间文学优秀代表作品、著名史诗《玛纳斯》、蒙古族民间文 学优秀代表作品、著名史诗《江格尔》。《阿凡提的故事》是产生于察合台汗国时期 的民间文学的代表作之一 。叶尔羌汗国时期,马赫麻·海答儿·尕豁刺的《拉失德史》和沙·马合木·楚刺思的《编年史》。阿曼尼莎罕 收集、整理、编创的维吾尔《十二木卡姆》 ，它是东方音乐文化的无价之宝,它像蒙古族的《江格尔》，藏族的 《格萨尔》、柯尔克孜族的《玛纳斯》等英雄史诗一样,具有世界性的影响。随着清朝对新疆的统一,大批内地 汉 族军民进入新疆北路屯戍落户,在乌鲁木齐巴里坤、奇台一带,汉族文化成为当地文化的主体。秦腔、河北梆 子、新疆曲子等杂技等艺术班社相继出现,并迅速不断地普及;纪晓岚、林 则徐、戴澜、刘锷等被谪来疆,在新疆 留下了不少名篇佳作。　
-　　***
-  ~ 近、现代时期。辛亥革命、五四运动等革命精神在新疆的传播和弘扬,推动了新疆 文化的发展。抗日战争时期以陈潭秋、毛泽民、林基路等革命烈士为代表的中国共产党人,在新 疆各族人民中传 播马克思列宁主义、宣传中国共产党关于建立抗日民主统一战线的正确主 张,开展声势浩大的抗日救亡运动,推 动新疆民族文化发展,与此同时,许多进步文化人士如 茅盾、杜重远、张仲实、赵丹、王为一等在乌鲁木齐从事 抗日进步的文化活动,组织各族工人、农民、教师、学生、职员、商人等广大民众创作演出抗战进步歌曲、话剧 、秦腔、京 剧、新疆曲子等剧节目。在新疆各族人民中产生了广泛而深远的影响。全疆各地各族人民群众和进 步人士,先后组织"反帝会"和各民族"文化促进会",开展各种民族进步的文化活动。 著名爱国主义诗人黎·穆特 里夫以歌颂抗日救国的伟大斗争为主题,著有《中国》、《给岁月的答复》等战斗诗篇。民族话剧《蕴倩姆》、 维吾尔剧《艾里甫与赛乃姆》、杂技《达 瓦孜》、哈萨克族阿肯弹唱《萨里哈与萨曼》、《阿尔卡勒克》,柯尔 克孜族"玛纳斯奇"弹 唱《玛纳斯》等剧节目相继搬上艺术舞台。民族传统文艺活动如维吾尔族"麦西来甫"、哈 萨克族"阿肯弹唱会"、柯尔克孜族"库姆孜弹唱会"、蒙古族"那达慕大会"、锡伯族"西迁节 "、汉族的"元霄灯会 "等久传不衰,极具民族特色,为广大各族人民群众所喜闻乐见,为新疆 民族文化亮丽的景观。
-  
-  
-  
-  
-  
- #                                                 感谢您的观看
- 了解更多新疆文化(https://baike.baidu.com/item/%E6%96%B0%E7%96%86/132263)
-               
-  
+<!doctype html>
+<html>
+<head>
+<meta charset="gbk">
+<title>��ҳ_������˲��� - һ��վ��webǰ�����֮·��Ů����Ա���˲�����վ</title>
+<meta name="keywords" content="���˲���,������˲���,���˲���ģ��,����" />
+<meta name="description" content="������˲��ͣ���һ��վ��webǰ�����֮·��Ů����Ա������վ���ṩ���˲���ģ�������Դ���صĸ���ԭ����վ��" />
+<meta name="viewport" content="width=device-width, initial-scale=1.0">
+<link href="css/base.css" rel="stylesheet">
+<link href="css/index.css" rel="stylesheet">
+<link href="css/m.css" rel="stylesheet">
+<script src="js/jquery.min.js" type="text/javascript"></script>
+<script type="text/javascript" src="js/hc-sticky.js"></script>
+<script type="text/javascript" src="js/comm.js"></script>
+<!--[if lt IE 9]>
+<script src="js/modernizr.js"></script>
+<![endif]-->
+</head>
+<body>
+<header class="header-navigation" id="header">
+  <nav><div class="logo"><a href="/">������˲���</a></div>
+    <h2 id="mnavh"><span class="navicon"></span></h2>
+    <ul id="starlist">
+      <li><a href="index.html">��վ��ҳ</a></li>
+      <li><a href="share.html">�ҵ����</a></li>
+      <li><a href="list.html">�ҵ��ռ�</a></li>
+      <li><a href="about.html">������</a></li>
+      <li><a href="gbook.html">����</a></li>
+      <li><a href="info.html">����ҳ</a></li>
+      <li><a href="infopic.html">����ҳ</a></li>
+    </ul>
+</nav>
+</header>
+<article>
+  <aside class="l_box">
+    <div class="about_me">
+      <h2>������</h2>
+      <ul>
+        <i><img src="images/4.jpg"></i>
+        <p><b>����</b>��һ��80��ݸ�Ůվ����09�����С�һֱǱ���о�webǰ�˼�����һ�߹���һ�߻��۾��飬����һЩ���˲���ģ�壬�Լ�SEO�Ż����ĵá�</p>
+      </ul>
+    </div>
+    <div class="wdxc">
+      <h2>�ҵ����</h2>
+      <ul>
+        <li><a href="/"><img src="images/7.jpg"></a></li>
+        <li><a href="/"><img src="images/8.jpg"></a></li>
+        <li><a href="/"><img src="images/9.jpg"></a></li>
+        <li><a href="/"><img src="images/10.jpg"></a></li>
+        <li><a href="/"><img src="images/11.jpg"></a></li>
+        <li><a href="/"><img src="images/12.jpg"></a></li>
+      </ul>
+    </div>
+     <div class="search">
+      <form action="/e/search/index.php" method="post" name="searchform" id="searchform">
+        <input name="keyboard" id="keyboard" class="input_text" value="������ؼ��ִ�" style="color: rgb(153, 153, 153);" onfocus="if(value=='������ؼ��ִ�'){this.style.color='#000';value=''}" onblur="if(value==''){this.style.color='#999';value='������ؼ��ִ�'}" type="text">
+        <input name="show" value="title" type="hidden">
+        <input name="tempid" value="1" type="hidden">
+        <input name="tbname" value="news" type="hidden">
+        <input name="Submit" class="input_submit" value="����" type="submit">
+      </form>
+    </div>
+    <div class="fenlei">
+      <h2>���·���</h2>
+      <ul>
+        <li><a href="/">ѧ��ֹ����33��</a></li>
+        <li><a href="/">�ռǣ�19��</a></li>
+        <li><a href="/">����520��</a></li>
+        <li><a href="/">�������ͣ�40��</a></li>
+      </ul>
+    </div>
+    <div class="guanzhu">
+      <h2>��ע�� ôô��</h2>
+      <ul>
+        <img src="images/wx.jpg">
+      </ul>
+    </div>
+  </aside>
+  <main class="r_box">
+<div class="gbook">
+      <div class="fb">
+        <ul>
+          <p class="fbtime"><span> 2018-07-21 </span> ҹ�¹�;</p>
+          <p class="fbinfo">���������Ȧ��������¡���ΪʲôҪ��������վ�������ģ���ϰ�����������վ�ǳ��������ĳ�����һֱ�ڼ��!</p>
+        </ul>
+      </div>
+      <div class="hf">
+        <ul>
+          <p class="zzhf"><font color="#FF0000">վ���ظ�:</font>��л�����������������վ����������û������Ŷ~</p>
+        </ul>
+      </div>
+      <div class="fb">
+        <ul>
+          <p class="fbtime"><span> 2018-07-10 </span> �ܺ�</p>
+          <p class="fbinfo">�����ӽ�����������ж�ؽ���ͷ�����иС�����������˵�����APPץס�˺ܶ����Ե��ص㣬�ڼ򵥡��ظ���ˬ������������˼��¡���������Ϊ����ж������뷨�Ƚϻĵ����κζ�����ֻҪ���Կ��������ܽ���Ϊ�����á���һ����Ҳ��ˢͷ����ͣ������</p>
+        </ul>
+      </div>
+      <div class="hf">
+        <ul>
+          <p class="zzhf"><font color="#FF0000">վ���ظ�:</font>�ţ���Ҳ�����������ޣ�ɾ��ͷ�����ǽ���������ѣ�������˶��죬��ǿ�����ˣ�Ҳ������⵳��</p>
+        </ul>
+      </div>
+      <div class="fb">
+        <ul>
+          <p class="fbtime"><span> 2018-07-09 </span> ��ӱ</p>
+          <p class="fbinfo">����߹</p>
+        </ul>
+      </div>
+      <div class="hf">
+        <ul>
+          <p class="zzhf"><font color="#FF0000">վ���ظ�:</font>��л��һ�����Ե�֧�֣�����</p>
+        </ul>
+      </div>
+      <div class="gbox">
+        <form action="../../enews/index.php" method="post" name="form1" id="form1">
+          <p> <strong>��˵���ʲô��...</strong></p>
+          <p><span> �������:</span>
+            <input name="name" type="text" id="name">
+            *</p>
+          <p><span>��ϵ����:</span>
+            <input name="email" type="text" id="email">
+            *</p>
+          <p><span class="tnr">��������:</span>
+            <textarea name="lytext" cols="60" rows="12" id="lytext"></textarea>
+          </p>
+          <p>
+            <input type="submit" name="Submit3" value="�ύ">
+            <input name="enews" type="hidden" id="enews" value="AddGbook">
+          </p>
+        </form>
+      </div>
+    </div>
+  </main>
+</article>
+<footer>
+  <p>Design by <a href="http://www.yangqq.com" target="_blank">������˲���</a> <a href="/">��ICP��11002373��-1</a></p>
+</footer>
+<a href="#" class="cd-top">Top</a>
+</body>
+</html>
